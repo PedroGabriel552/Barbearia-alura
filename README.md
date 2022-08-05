@@ -4,4 +4,5 @@
 ###💻🚬 E curto progamação
 ###🔪🔫E quero melhorar minhas habilidades
 
-![fuck_off_breaking_bad](https://user-images.githubusercontent.com/108410235/183129734-47cbcfd9-9952-4e83-81f9-aca1d518a5e4.gif)
+
+![walter-white-walter](https://user-images.githubusercontent.com/108410235/183129817-8e94e1c4-9480-4437-88e2-15379475afe7.gif)
