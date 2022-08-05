@@ -1,6 +1,6 @@
 # Pedro-Gabriel
 
-###🤘🎸Eae rapaziada, eu sou o Pedro e estudo no colégia Carmelina
+###🤘🎸Eae rapaziada, eu sou o Pedro e estudo no colégio Carmelina
 ###💻🚬 E curto progamação
 
 
